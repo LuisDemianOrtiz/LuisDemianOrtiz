@@ -12,6 +12,9 @@
 
 * Nunca salgo de plata <img src="https://i.pinimg.com/originals/43/7d/68/437d68d42440ceb598f1ec75fb470350.png" width="30">
 * Si quieren jugar unos CS acá esta mi [steam]
+* Siempre en modo Locuraa 🤪🤙
+
+<img src="https://pbs.twimg.com/media/Enz6IFrWEAE1Whn.jpg" width="300">
 
 
 
